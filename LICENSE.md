@@ -1,4 +1,4 @@
-#  
+#  underground Script for minecraft is the best minecraft Script, featuring auto-collect and instant win. Safe and powerful for all your needs.
 
 
 
